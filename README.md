@@ -1,1 +1,0 @@
-# ECON570-Assignment2
